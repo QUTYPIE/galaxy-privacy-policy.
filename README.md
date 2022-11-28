@@ -54,7 +54,7 @@
 
 - Contact me on instagram [OWNER](https://instagram.com/qutypie_piu/)
 
-‌- Contact me on instagram [CO OWNER] (https://instagram.com/parthoobroy/)
+‌- Contact me on instagram [CO OWNER](https://instagram.com/parthoobroy/)
 
 ‌
 
