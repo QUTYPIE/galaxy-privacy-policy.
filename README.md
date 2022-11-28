@@ -50,11 +50,11 @@
 
 ‌#### You can reach us by the following things:
 
-‌- Join our [Support Server](https://discord.gg/7gsTeMGU) on discord
+‌- Join our [Support Server](https://discord.gg/fz8QMYdVDq) on discord
 
-- Contact me on instagram [OWNER](https://instagram.com/qutypie_piu?igshid=YmMyMTA2M2Y=)
+- Contact me on instagram [OWNER](https://instagram.com/qutypie_piu/)
 
-‌- Contact me on instagram [CO OWNER] [discord.gg/qutypie](https://instagram.com/parthoobroy?igshid=YmMyMTA2M2Y=)
+‌- Contact me on instagram [CO OWNER] [discord.gg/vayuesports](https://instagram.com/parthoobroy/)
 
 ‌
 
